@@ -1,1 +1,0 @@
-# temenost24transact
